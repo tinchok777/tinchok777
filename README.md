@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @tinchok777
+- 👀 I’m interested in league of legends
+- 🌱 I’m currently learning league of legends
+- 💞️ I’m looking to collaborate on league of legends
+- 📫 How to reach me league of legends
+- 😄 Pronouns: leagueo/flegends
+- ⚡ Fun fact: i hate league of legends
